@@ -1,2 +1,2 @@
 Free Hong Kong, Free China!
-Free Tibet!
+Free Tibet! Free XinJiang!
